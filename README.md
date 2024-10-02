@@ -1,1 +1,1 @@
-# S-32_Reznik_Dmytro_Independent1
+# IS-32_Reznik_Dmytro_Independent1
